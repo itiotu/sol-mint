@@ -1,1 +1,1 @@
-# w3-m
+# sol-mint
